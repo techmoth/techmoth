@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Apolo!
+- 🔮 I’m interested in art, games and technology.
+- 🏹 I’m currently learning web deb.
+- 🦋 Pronouns: He.
